@@ -1,4 +1,4 @@
-- Hey my Name justin but i go by Kash or Kashy im currently 16 but ima fast learner(for example the first project you see is me 4 days in no youtube)
+- Hey my Name is justin but i go by Kash or Kashy im currently 16 but ima fast learner(for example the first project you see is me 4 days in no youtube)
 - i currently have 4 more projects that are in the making i did them from scratch and lets just say i have a Ton of things to do on them but they are looking good so far
 - (for the info im pretty alright at html css in the next project i will post trust is better then my first one
 - 
