@@ -4,7 +4,7 @@
 - 
 - 👀 I’m interested in learing more the time im typin this i only been coding for a week(Pure)
 - 
-- 🌱 I’m currently learning Js and i looking into Php,jQ
+- 🌱 I’m currently learning Js and i looking into Php,react.js,SQL
 - 
 -  I’m looking to collaborate on anything Tbh jst hit me up
 -  
